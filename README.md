@@ -1,5 +1,5 @@
 <div align='center'> 
- <img src='https://files.catbox.moe/tm3n7i.gif' title='leper king'
+ <img src='https://files.catbox.moe/kai3w3.gif' title='Lord Tiberias ; Count of Tripoli'
 
    <br>ꕀ⠀ ♱⠀ ꕀ<br>
 <b>TIBERIAS ; mourn <br>
