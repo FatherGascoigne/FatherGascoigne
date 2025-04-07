@@ -2,8 +2,8 @@
  <img src='https://files.catbox.moe/tm3n7i.gif' title='leper king'
 
    <br>ꕀ⠀ ♱⠀ ꕀ<br>
-<b>TIBERIAS</b> ; <br>mourn <br>
-   she<i>her</i>  <b>fourteen</b>
+<b>TIBERIAS ; mourn <br>
+   she <i> her</i>  <b>fourteen</b>
 
  
  <a href="https://rentry.co/artoriasdotcom">rentry</a> : <a href="https://mourn.atabook.org">ata</a> : <a href="https://en.pronouns.page/@wolfknight">pronouns</a>
