@@ -1,5 +1,5 @@
 <div align='center'> 
- <img src='https://files.catbox.moe/p9f2ls.gif' title='Lord Tiberias ; Count of Tripoli'
+ <img src='https://files.catbox.moe/mzples.gif' title='Lord of Cinder ; Abyss Watchers'
 
    <br>ꕀ⠀ ♱⠀ ꕀ<br>
 <b>TIBERIAS ; mourn <br>
