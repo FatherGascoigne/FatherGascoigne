@@ -1,4 +1,6 @@
-   <br>"  Noble Lords of Cinder.. the fire fades, and the lords go without thrones. Surrender your fires, to the one true Heir. Let them grant death to the old gods of Lordran, deliverers of the First Flame.  "<br>
+   <br>"  Noble Lords of Cinder.. the fire fades, and the lords go without thrones.
+   <br>Surrender your fires, to the one true Heir. Let them grant death to the old gods of Lordran,<br>
+   <br>deliverers of the First Flame.  "<br>
 
 <div align='center'> 
  <img src='https://files.catbox.moe/mzples.gif' title='Lord of Cinder ; Abyss Watchers'
