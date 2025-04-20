@@ -1,5 +1,5 @@
 <div align='center'> 
- <img src='https://files.catbox.moe/mzples.gif' title='Lord of Cinder ; Abyss Watchers'
+ <img src='https://files.catbox.moe/zynpub.gif' title=
 
    <br>ꕀ⠀ ♱⠀ ꕀ<br>
 <b>FARAAM ; mourn <br>
