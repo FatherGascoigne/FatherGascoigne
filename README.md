@@ -1,5 +1,5 @@
 <div align='center'> 
- <img src='https://files.catbox.moe/zynpub.gif' title= 'ELDEN RING'
+ <img src='https://files.catbox.moe/lhojcj.gif'
 
    <br>ꕀ⠀ ♱⠀ ꕀ<br>
 <b>FARAAM ; mourn <br>
