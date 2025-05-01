@@ -1,5 +1,5 @@
 <div align='center'> 
- <img src='https://files.catbox.moe/lhojcj.gif'
+ <img src='https://files.catbox.moe/nu16jw.jpeg'
 
    <br>ꕀ⠀ ♱⠀ ꕀ<br>
 <b>FARAAM ; mourn <br>
