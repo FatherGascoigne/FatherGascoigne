@@ -1,5 +1,5 @@
 <div align='center'> 
- <img src='![](https://files.catbox.moe/ivj5c7.gif0'
+ <img src='https://files.catbox.moe/ivj5c7.gif'
 
    <br>ꕀ⠀ ♱⠀ ꕀ<br>
 <b>SHEPARD ; mourn <br>
