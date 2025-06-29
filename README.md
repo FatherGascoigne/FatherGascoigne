@@ -1,7 +1,7 @@
 <div align='center'> 
  <img src='https://giffiles.alphacoders.com/219/219211.gif'
 
-   <br>ꕀ⠀ ♱⠀ ꕀ<br>
+   <br>　　<br>
 <b> 𝒎𝒐𝒖𝒓𝒏　. ·͙⠀𖧧̣̥⠀ .　𝒔𝒏𝒊𝒑𝒔 <br>
    she <i> her</i>  <b>fourteen</b>
 
