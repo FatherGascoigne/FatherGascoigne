@@ -1,6 +1,5 @@
 <div align='center'> 
  <b> ,, " 𝑻𝒉𝒆𝒚 𝒎𝒂𝒚 𝒃𝒆 𝒘𝒊𝒍𝒍𝒊𝒏𝒈 𝒕𝒐 𝒅𝒊𝒆, 𝒃𝒖𝒕 𝑰 𝒂𝒎 𝒏𝒐𝒕 𝒕𝒉𝒆 𝒐𝒏𝒆 𝒘𝒉𝒐 𝒊𝒔 𝒈𝒐𝒊𝒏𝒈 𝒕𝒐 𝒌𝒊𝒍𝒍 𝒕𝒉𝒆𝒎, " <br>
-
  <img src='https://giffiles.alphacoders.com/219/219211.gif'
 
    <br>　　<br>
