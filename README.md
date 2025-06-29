@@ -1,5 +1,5 @@
 <div align='center'> 
- <img src='https://i0.wp.com/www.nerdsandbeyond.com/wp-content/uploads/2020/09/The-Wrong-Jedi.gif?resize=600%2C254&ssl=1'
+ <img src='https://i.pinimg.com/originals/13/21/26/132126b549f405974b3cb793976d959d.gif'
 
    <br>ꕀ⠀ ♱⠀ ꕀ<br>
 <b>SHEPARD ; mourn <br>
