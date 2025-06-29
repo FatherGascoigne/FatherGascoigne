@@ -3,7 +3,7 @@
 
    <br>　　<br>
 <b> 𝒎𝒐𝒖𝒓𝒏　. ·͙⠀𖧧̣̥⠀ .　𝒔𝒏𝒊𝒑𝒔 <br>
-  <b> 。 ‎ ‎ ౨ৎ　　　4ᴛᴇᴇɴ　　ᴖᴖ <br>
+  <b> 。 ‎ ‎ ౨ৎ　　　𝟜-𝕥𝕖𝕖𝕟　　ᴖᴖ <br>
 
  
  <a href="https://rentry.co/artoriasdotcom">rentry</a> : <a href="https://mourn.atabook.org">ata</a> : <a href="https://en.pronouns.page/@wolfknight">pronouns</a>
