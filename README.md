@@ -3,9 +3,9 @@
  <img src='https://giffiles.alphacoders.com/219/219211.gif'
 
    <br>　　<br>
-<b> 𝒎𝒐𝒖𝒓𝒏　. ·͙⠀𖧧̣̥⠀ .　𝒔𝒏𝒊𝒑𝒔 <br>
-  <b> ,, ‎ ‎ ౨ৎ　　　𝟜-𝕥𝕖𝕖𝕟　　ᴖᴖ <br>
-  <b> 𝒔𝒉𝒆　𝜗ৎ　𝓱𝓮𝓻 <br>
+<b> mourn or snips <br>
+  <b> fromsoft and mass effect fein.. hmu <br>
+  <b> minor <br>
 
  
  <a href="https://rentry.co/artoriasdotcom">rentry</a> : <a href="https://mourn.atabook.org">ata</a> : <a href="https://en.pronouns.page/@wolfknight">pronouns</a>
