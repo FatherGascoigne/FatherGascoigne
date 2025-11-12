@@ -4,7 +4,7 @@
 
    <br>　　<br>
 <b> mourn or snips <br>
-  <b> fromsoft and mass effect fein.. hmu <br>
+  <b> knight artorias selfshipper <br>
   <b> minor <br>
 
  
