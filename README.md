@@ -1,6 +1,6 @@
 <div align='center'> 
   <b> 　　 </b>
- <img src='https://images.steamusercontent.com/ugc/5073899534693837156/A7FD102C6F5E0F8CA65B667ACD263A7151829337/?imw=637&imh=358&ima=fit&impolicy=Letterbox&imcolor=%23000000&letterbox=true'
+ <img src=''
 
    <br>　　<br>
 <b> mourn or snips <br>
