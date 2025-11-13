@@ -1,6 +1,6 @@
 <div align='center'> 
   <b> 　　 </b>
- <img src='https://freepngimg.com/thumb/dark_souls/34163-3-dark-souls-logo-transparent-background.png'
+ <img src='https://static.wikia.nocookie.net/darksouls/images/b/ba/Knight_Artorias_Model.png/revision/latest?cb=20210810060149'
 
    <br>　　<br>
 <b> mourn or snips <br>
