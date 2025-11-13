@@ -1,6 +1,6 @@
 <div align='center'> 
   <b> 　　 </b>
- <img src='https://files.catbox.moe/bbp65f.png'
+ <img src='https://freepngimg.com/thumb/dark_souls/34163-3-dark-souls-logo-transparent-background.png'
 
    <br>　　<br>
 <b> mourn or snips <br>
