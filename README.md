@@ -4,7 +4,7 @@
 
    <br>　　<br>
 <b> mourn or snips <br>
-  <b> knight artorias selfshipper <br>
+  <b> knight artorias yume <br>
   <b> minor <br>
 
  
