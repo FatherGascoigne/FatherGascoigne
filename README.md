@@ -1,6 +1,6 @@
 <div align='center'> 
   <b> 　　 </b>
- <img src=''
+ <img src='https://parryeverything.com/wp-content/uploads/2021/09/artyyeet.gif'
 
    <br>　　<br>
 <b> mourn or snips <br>
