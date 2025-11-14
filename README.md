@@ -4,7 +4,7 @@
 
    <br>　　<br>
 <b> mourn or snips <br>
-  <b> knight artorias yume, non-sharing maybe sometimes idk... ok..? <br>
+  <b> knight artorias yume, non-sharing maybe. just don't be a hardass about it <br>
   <b> minor <br>
 
  
