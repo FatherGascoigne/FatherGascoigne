@@ -3,9 +3,9 @@
  <img src='https://media.tenor.com/ScMc87qZimAAAAAM/dark-souls-sif.gif'
 
    <br>　　<br>
-<b> mourn or snips <br>
-  <b> knight artorias yume, non-sharing maybe. just don't be a hardass about it <br>
-  <b> minor <br>
+<b> mourn or saoirse. ciaran is also ok!! <br>
+  <b> knight artorias yume, non-sharing maybe. just don't be a hardass <br>
+  <b> minor. new strawpage is a wip, please be patient <br>
 
  
  <a href="https://rentry.co/artoriasdotcom">rentry</a> : <a href="https://mourn.atabook.org">ata</a> : <a href="https://en.pronouns.page/@wolfknight">pronouns</a>
